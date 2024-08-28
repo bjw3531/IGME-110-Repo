@@ -1,6 +1,8 @@
 # Brian's Hobby Listicle
 
-1. Martial Arts
-2. Pretty much just Martial Arts
-3. Oh and music too
-4. But I don't practice enough
+1. Karate
+2. Kobudo
+3. (Far more recently) HEMA
+4. It's pretty much just Martial Arts lmao
+5. Oh and music too; specifically the cello.
+6. But I don't practice enough
