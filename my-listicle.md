@@ -6,8 +6,8 @@
 
 ## Music
 4. [Cello](https://cdn.prod.website-files.com/61a546bc82b92d612439d8f3/65c573015a2df390f7472d94_cello-warm-up-sharing-image.jpg)
-5. [Piano]
-6. [Arranging]
+5. [Piano](https://pianopiano.com/wp-content/uploads/2018/12/yamaha-5-7-grand-piano-1.jpg)
+6. [Arranging... But I Didn't Make This One](https://musescore.com/static/musescore/scoredata/g/856c43cff20480555a11980a7ec522e2d6d4c06e/score_0.svg?no-cache=1715690441)
 
 ## Video Games
 7. [ULTRAKILL](https://shared.akamai.steamstatic.com/store_item_assets/steam/apps/1229490/header.jpg?t=1704406135)
